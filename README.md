@@ -1,2 +1,0 @@
-# Ataraxia
-Página Empresa 
